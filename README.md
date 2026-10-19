@@ -1,0 +1,2 @@
+# premium-thurible-001-thurible-chain-and-censer-asse
+Tired of losing track of chain lengths, censer components, and assembly steps across a dozen sticky notes and spreadsheets?  This Notion template transforms your thurible craft workflow into a single, coherent system. It organizes every chain and censer detail, standardizes your assembly process, and saves hours of hunting for specs.  ## What's Inc
